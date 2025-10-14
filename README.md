@@ -39,8 +39,3 @@ Thank you for your generosity! ❤️
 
 Looking for a personalized tool? DM me on Discord with all the details and your budget!  
 Store: https://anomus.mysellauth.com/
-
-
----
-
-**Disclaimer**: This tool is provided as-is for educational purposes. Users are responsible for complying with all applicable terms of service and laws.
